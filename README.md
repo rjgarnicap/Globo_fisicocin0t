@@ -1,1 +1,0 @@
-# Globo_fisicocin0t
